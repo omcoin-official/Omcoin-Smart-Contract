@@ -24,7 +24,7 @@ YouTube: https://www.youtube.com/watch?v=8ew2ZHoYgcg
 
 Reddit: https://www.reddit.com/user/omcoin_official
 
-Discord: https://discord.gg/uqwQFu8E
+Discord: https://discord.gg/6dUrJEHxKp
 
 Medium: https://omcoin.medium.com/
 
